@@ -1,2 +1,1 @@
-# reseller
-Discount
+<a target="_blank" href="https://m.media-amazon.com/images/G/31/img17/Amazon_Business_Offers.zip?_encoding=UTF8&linkCode=ib1&tag=21025e-21&linkId=9dfd1cd127cd4456dfa36d4b08ca8d2a&ref_=ihub_curatedcontent_8a129f56-47c3-4112-b282-88dd230f239e">Best Amazon Business Offers</a>
